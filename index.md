@@ -20,6 +20,6 @@ Hi, I'm Gerald Thomas, but most people just call me Tripp. I'm a passionate make
 
 
 ## Contact
-Feel free to contact me on [LinkedIn](your_linkedin_profile), or via [email](mailto:geraldrtripp@gmail.com).
+Feel free to contact me on [LinkedIn](https://www.linkedin.com/in/tripp-thomas-788238358/), or via [email](mailto:geraldrtripp@gmail.com).
 
 
